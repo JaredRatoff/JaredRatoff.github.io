@@ -1,2 +1,2 @@
-# JaredRatoff.github.io
-Jared Ratoff's Portfolio Site
+# Jared11889.github.io
+Jared R. - Portfolio
